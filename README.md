@@ -1,2 +1,3 @@
-# No-Knife-Damage-Command-Forever
-No Knife Damage | Command &amp; Forever
+# No Knife Damage | Command and Forever
+
+# https://forums.alliedmods.net/showthread.php?t=332405
